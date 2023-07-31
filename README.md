@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RiyaCherada
+- 👀 I’m interested in Design, Illustration and Art Direction
+- 🌱 I’m currently trying to learn tech that can help me Present my work better and make my process easier
+- 📫 You can reach out to me @riyacherada97@gmail.com
